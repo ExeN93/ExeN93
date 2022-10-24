@@ -6,6 +6,8 @@
   
 ###### --> add me on discord: ExeN#1100
 
+![x](C:\Users\andrz\OneDrive\Obrazy\money.gif "Money Making")
+
 <!--
 **ExeN93/ExeN93** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
