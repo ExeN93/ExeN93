@@ -1,4 +1,10 @@
-### Hi there 👋
+# <h1>Hi there bro 🙋‍♂️
+
+### 📌 How to reach me? 📫
+  
+###### --> write me an email: andrzejzwirko@protonmail.com
+  
+###### --> add me on discord: ExeN#1100
 
 <!--
 **ExeN93/ExeN93** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
