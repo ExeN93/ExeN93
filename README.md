@@ -1,4 +1,4 @@
-# <h1>Hi there bro 🙋‍♂️
+# <h1>Hi there 🙋‍♂️
 
 ### 📌 How to reach me? 📫
   
