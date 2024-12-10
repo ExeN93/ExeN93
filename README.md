@@ -1,10 +1,8 @@
-# <h1>Hi there 🙋‍♂️
+# <h1>🙋‍♂️
 
-### 📌 How to reach me? 📫
-  
 ###### --> write me an email: exen315@gmail.com
   
-###### --> add me on discord: ExeN#1100
+###### --> add me on discord: exen93
 
 
 <!--
