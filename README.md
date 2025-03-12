@@ -1,8 +1,8 @@
 # <h1>🙋‍♂️
 
-###### --> write me an email: exen315@gmail.com
+###### -> email: exen315@gmail.com
   
-###### --> add me on discord: exen93
+###### -> add me on discord: exen93
 
 
 <!--
