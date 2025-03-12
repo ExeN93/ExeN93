@@ -2,7 +2,7 @@
 
 ###### -> email: exen315@gmail.com
   
-###### -> add me on discord: exen93
+###### -> discord: exen93
 
 
 <!--
