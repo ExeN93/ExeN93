@@ -1,5 +1,3 @@
-# <h1>🙋‍♂️
-
 ###### -> email: exen315@gmail.com
   
 ###### -> discord: exen93
