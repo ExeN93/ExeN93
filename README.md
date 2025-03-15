@@ -1,6 +1,6 @@
-### - email: exen315@gmail.com
+### email: exen315@gmail.com
   
-### - discord: exen93
+### discord: exen93
 
 
 <!--
